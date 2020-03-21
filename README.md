@@ -1,0 +1,1 @@
+# Mesters-ges-intelligencia-alkalmaz-sok-1
